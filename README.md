@@ -1,4 +1,4 @@
-# Hi there Latha KM 👋
+# Hi there I'm Latha KM 👋
 
 <!--
 **Lathakmlatha/Lathakmlatha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
